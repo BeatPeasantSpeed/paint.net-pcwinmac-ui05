@@ -1,4 +1,4 @@
-# 
+# Smart Paint.NET templates for Mac OS | Premium Paint.NET templates for PC Windows. Featuring compositing and animation-timeline — optimized for maximum performance on every platform.
 
 
 
